@@ -16,4 +16,6 @@ Feel free to reach out via the contact form on my website: [lver.link](https://l
 ## Pronouns
 Male, He/Him/His/Himself
 
+---
+
 Thanks for stopping by!
